@@ -1,2 +1,1 @@
-- ⚡ Fun fact: ...
-
+- 🔥 work hard
